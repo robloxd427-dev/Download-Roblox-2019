@@ -37,7 +37,7 @@ Website ini dibuat sebagai proyek nostalgia untuk mengenang tampilan Roblox tahu
 
 Klik tombol di bawah untuk mengunduh versi resmi dan terbaru dari Roblox:
 
- **[DOWNLOAD ROBLOX OFFICIAL](https://www.roblox.com/download)**
+ **[DOWNLOAD ROBLOX OFFICIAL](https://www.apkmirror.com/apk/roblox-corporation/roblox/roblox-2-500-373-release/roblox-2-500-373-2-android-apk-download/)**
 
 ⚠ Demi keamanan akun dan perangkat, selalu gunakan link resmi.
 
