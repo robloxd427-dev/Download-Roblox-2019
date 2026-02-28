@@ -27,7 +27,7 @@ Website ini dibuat sebagai proyek nostalgia untuk mengenang tampilan Roblox tahu
 
 ## Gallery Classic 2019
 
-![Classic Logo](https://upload.wikimedia.org/wikipedia/commons/7/7e/Roblox_Logo_2019.jpg)
+![Classic Logo](https://share.google/vMNpnuCLfYaTh2tml.png)
 
 ![Gameplay Preview](https://tr.rbxcdn.com/180DAY-8c9d1c9b5c2f8c2a1e8a5d9a4e1f9c11/768/432/Image/Webp/noFilter)
 
